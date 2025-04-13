@@ -79,7 +79,7 @@ Total Penghasilan Rp.7540000.0
 
 ## 👨‍💻 Kontributor
 
-Nana
+Nanachan
 ```
-
+Semangat Belajar!
 ---
